@@ -1,1 +1,1 @@
-# curriculo-lary
+# ﹒ᐢ..ᐢ﹕Segue em anexo a seguir meu currículo referente à vaga de atendente em cafeteria﹒☆
