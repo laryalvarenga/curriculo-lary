@@ -1,1 +1,2 @@
-# ﹒ᐢ..ᐢ﹕Segue em anexo a seguir meu currículo referente à vaga de atendente em cafeteria﹒☆
+# ﹒ᐢ..ᐢ﹕Currículo Larissa﹒☆
+- (♡) Segue em anexo meu currículo referente à uma vaga de atentende de cafteria
